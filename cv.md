@@ -1,5 +1,5 @@
 # _*Natalia Zotkina*_
-### [GitHub](https://github.com/Natallia-Zotkina)
+### [GitHub](https://github.com/Natallia-Zotkina)/[Linkedin](https://www.linkedin.com/feed/)
 #### mobile phone number  
 #### **_+375298821123_**
 ## Personal information
